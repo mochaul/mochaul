@@ -17,4 +17,4 @@
 
 ### I am Mochamad Aulia Akbar Praditomo
 - A tech, product, and people enthusiast.
-- A Computer Science bachelor graduate. 
+- A Information Technology master graduate. 
